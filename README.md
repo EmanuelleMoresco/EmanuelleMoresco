@@ -1,4 +1,4 @@
-# 👩‍💻 Emanuelle Moresco
+# 👩🏼‍💻 Emanuelle Moresco
 
 <h3>
 
